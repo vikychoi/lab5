@@ -2,7 +2,7 @@
 ## Project Problem Statement and Activities
 
 
-
+*I want to kill myself
 
 > **Activity 1 Due (6%): 18-3-2019 (Wk 7 Mon) 20:00**
 > Submission details will be provided on Canvas
